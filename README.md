@@ -1,4 +1,4 @@
 <div align="center">
-  <img src="https://i.pinimg.com/736x/7f/3f/62/7f3f625ee3033ec374fef1cb61c4aeb5.jpg">
+  <img src="https://i.postimg.cc/zXJ3kTf9/image-2025-09-01-101703653.png">
 </div>
 <p align="center"> <a href= "https://lluc.atabook.org/"> ata </a> ᲼/᲼ <a href= "https://kataking.straw.page"> strawpage </a> ᲼/᲼ <a href= "https://rentry.co/mihawk-"> rentry </a> </p>
