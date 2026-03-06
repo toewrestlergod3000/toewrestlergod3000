@@ -4,4 +4,4 @@
 </div>
 
 <p align="center"> —————————— </p>
-<p align="center"> <a href= "https://lluc.atabook.org/"> ata </a> ᲼ ᲼ <a href= "https://szs.straw.page"> strawpage </a> ᲼ ᲼ <a href= "https://rentry.co/sckuna"> rentry </a> </p>
+<p align="center"> <a href= "https://lluc.atabook.org/"> ata </a> ᲼ ᲼ <a href= "https://skuna.straw.page"> strawpage </a> ᲼ ᲼ <a href= "https://rentry.co/sckuna"> rentry </a> </p>
