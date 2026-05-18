@@ -1,5 +1,7 @@
+<p align="center"> pls ignore my mid ass layout idk what to do with it </p>
+
 <div align="center">
-  <img src="https://i.postimg.cc/63nLJXhJ/image-2026-05-14-235518757.png">
+  <img src="https://i.postimg.cc/RF1Jw1Nn/300px-Voidbreaker.webp">
 </div>
 
 <p align="center"> —————————— </p>
