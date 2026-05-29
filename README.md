@@ -1,8 +1,8 @@
-<p align="center"> $${\color{#8f6d8a}such⠀a}$$ $${\color{#cba9b4}P.Y.T}$$ </p>
+<p align="center"> $${\color{#e2e8f3}such⠀a}$$ $${\color{#8bd5fe}P.Y.T}$$ </p>
 
 <div align="center">
-  <img src="https://i.postimg.cc/RCTNrVh7/image-2026-05-24-142224435.png">
+  <img src="https://i.postimg.cc/c1vNh5RJ/image-2026-05-29-222911362.png">
 </div>
 
-<p align="center"> $${\color{#8f6d8a}(≧◡≦)}$$ </p>
-<p align="center"> <a href= "https://lluc.atabook.org/"> ata </a> ᲼ ᲼ <a href= "https://skuna.straw.page"> strawpage </a> ᲼ ᲼ <a href= "https://rentry.co/sckuna"> rentry </a> ᲼ ᲼ <a href= "https://x.com/sham0n3_67"> art credit </a> </p>
+<p align="center"> $${\color{#e2e8f3}(≧◡≦)}$$ </p>
+<p align="center"> <a href= "https://lluc.atabook.org/"> ata </a> ᲼ ᲼ <a href= "https://skuna.straw.page"> strawpage </a> ᲼ ᲼ <a href= "https://rentry.co/sckuna"> rentry </a> ᲼ ᲼ <a href= "https://x.com/sushiisiu/status/2059874347209326974?s=20"> art credit </a> </p>
