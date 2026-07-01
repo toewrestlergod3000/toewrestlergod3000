@@ -7,3 +7,4 @@
 <p align="center"> <a href= "https://lluc.atabook.org/"> ata </a> ᲼ ᲼ <a href= "https://skuna.straw.page"> strawpage </a> ᲼ ᲼ <a href= "https://rentry.co/tcji"> rentry </a>  ᲼ ᲼ <a href= "https://x.com/tojikunas?s=20"> art credits </a> </p>
 </div>
 
+<p align="center"> THAT ONE FRIEND THATS TOO TOJIKUNA </p>
