@@ -10,6 +10,6 @@
 <p align="center">⠀</p>
 <p align="center">⠀</p>
 <div align="center">
-  <img src="https://file.garden/amCuDGcSQR36Di_1/whatever%20the%20hell%20this%20is">
+  <img src="https://file.garden/amCuDGcSQR36Di_1/BULLSHIT%20NUMBER%202">
 </div>
 <p align="center"> <a href= "https://github.com/yusions"> @yusions </a> & me made cute art. 2holliskuna </p>
