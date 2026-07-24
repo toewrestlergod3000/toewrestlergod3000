@@ -12,4 +12,4 @@
 <div align="center">
   <img src="https://file.garden/amCuDGcSQR36Di_1/whatever%20the%20hell%20this%20is">
 </div>
-<p align="center"> <a href= "https://github.com/yusions"> @yusions </a> & me made cute art. 2hollis sukuna collab </p>
+<p align="center"> <a href= "https://github.com/yusions"> @yusions </a> & me made cute art. 2holliskuna </p>
