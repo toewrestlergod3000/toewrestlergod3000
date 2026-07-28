@@ -1,6 +1,6 @@
 <p align="center"> <a href= "https://github.com/title-town"> title-town's toji </a> & <a href= "https://github.com/pt-hall-of-media"> hall-of-media's sukuna </a> </p>
 <div align="center">
-  <img src="https://i.postimg.cc/BnpyL9hL/image-2026-07-29-013933292.png">
+  <img src="https://i.postimg.cc/L5rSWKdd/image-2026-07-29-014857317.png">
 </div>
 <p align="center"> ──── .✦ </p>
 <p align="center"> <a href= "https://lluc.atabook.org/"> ata </a> ᲼ ᲼ <a href= "https://skuna.straw.page"> strawpage </a> ᲼ ᲼ <a href= "https://rentry.co/sckuna"> rentry </a>  ᲼ ᲼ <a href= "https://www.last.fm/user/lalalaluc"> last.fm </a> ᲼ ᲼ <a href= "https://x.com/su2kuna"> art credits </a> </p>
