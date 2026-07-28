@@ -1,4 +1,5 @@
-<p align="center"> <a href= "https://github.com/title-town"> ponytown toji </a> title </p>
+<p align="center"> <a href= "https://github.com/title-town"> title-town's toji </a> </p>
+<p align="center"> <a href= "https://github.com/pt-hall-of-media"> hall-of-media's sukuna </a> </p>
 
 <div align="center">
   <img src="https://i.postimg.cc/CKgx978n/image-2026-07-17-212101249.png">
