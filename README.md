@@ -3,7 +3,7 @@
   <img src="https://i.postimg.cc/8C0Tvryc/image-2026-07-29-015244416.png">
 </div>
 <p align="center"> ────────────────────────────────────── </p>
-<p align="center"> <a href= "https://lluc.atabook.org/"> ata </a> ᲼ ᲼ <a href= "https://skuna.straw.page"> strawpage </a> ᲼ ᲼ <a href= "https://rentry.co/sckuna"> rentry </a>  ᲼ ᲼ <a href= "https://www.last.fm/user/lalalaluc"> last.fm </a> ᲼ ᲼ <a href= "https://x.com/su2kuna"> art credits </a> </p>
+<p align="center"> <a href= "https://lluc.atabook.org/"> ata </a> ᲼ ᲼ <a href= "https://madueke.straw.page"> strawpage </a> ᲼ ᲼ <a href= "https://rentry.co/sckuna"> rentry </a>  ᲼ ᲼ <a href= "https://www.last.fm/user/lalalaluc"> last.fm </a> ᲼ ᲼ <a href= "https://x.com/su2kuna"> art credits </a> </p>
 </div>
 <p align="center"> </p>
 <p align="center">⠀</p>
