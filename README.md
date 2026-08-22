@@ -1,20 +1,6 @@
+<p align="center"> i believe in arsenal polycule </p>
 <div align="center">
-  <img src="https://i.pinimg.com/1200x/7f/7f/93/7f7f9359dea3a6425a69672712c4f61b.jpg" width="450">
+   <img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjBwNDNmdnhyOXh0anUwcGR4Mjl6ODY2amVydDZyeXRiY3dmYXRzYSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Z29f6cnZvmkiC575ff/giphy.gif"/>
 </div>
 <p align="center"> </p>
 <p align="center"> <a href= "https://lluc.atabook.org/"> ata </a> ᲼ ᲼ <a href= "https://madueke.straw.page"> strawpage </a> ᲼ ᲼ <a href= "https://rentry.co/sckuna"> rentry </a>  ᲼ ᲼ <a href= "https://www.last.fm/user/lalalaluc"> last.fm </a> </p>
-</div>
-<p align="center"> </p>
-<p align="center">⠀</p>
-<p align="center">⠀</p>
-<p align="center">⠀</p>
-<p align="center">⠀</p>
-<p align="center">⠀</p>
-<p align="center">⠀</p>
-<p align="center">⠀</p>
-<p align="center">⠀</p>
-<p align="center">⠀</p>
-<p align="center">⠀</p>
-<p align="center">⠀</p>
-<p align="center">⠀</p>
-<p align="center"> <a href= "https://github.com/title-town"> title-town's toji </a> & <a href= "https://github.com/pt-hall-of-media"> hall-of-media's sukuna </a> </p>
